@@ -1,1 +1,1 @@
-Scale. Create. Innovate.
+<b>About Us</b>
